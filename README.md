@@ -4,4 +4,4 @@
 - Leila Silva
 - Ismael Ideme
 - Solange Lopez
-- Diego Figueredo
+- Diego Figueredo 30 años - Lanus
