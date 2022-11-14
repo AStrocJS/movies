@@ -3,5 +3,5 @@
 - Matias Nuñez - 30 años - Lanus
 - Leila Silva
 - Ismael Ideme
-- Solange Lopez
+- Solange Lopez - 32 años - Buenos Aires
 - Diego Figueredo
